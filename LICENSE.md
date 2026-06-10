@@ -1,4 +1,4 @@
-# 
+# Avancé low-frequency trading bot modèles pour Mac OS | Intelligent low-frequency trading bot modèles pour PC Windows. Avec écouteurs d'événements et signature des transactions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
